@@ -1,0 +1,1 @@
+# LatModul3Strukdat
